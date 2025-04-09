@@ -12,7 +12,8 @@
 - Podemos contactar por [LinkedIn](https://www.linkedin.com/in/soriacarlos/) 🏆.
   <br>
 
-
+<br>
+<br>
 
 🛠️ Skills
 -------------------
